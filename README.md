@@ -1,1 +1,1 @@
-[# САЙТ ГАИТИ](https://ftnzz1337.github.io/g/)
+[# САЙТ PICUN](https://ftnzz1337.github.io/p/)
